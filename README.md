@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Roman! Roman_Mln
+### Hi there 👋, I'm Roman!
 
 ![](https://komarev.com/ghpvc/?username=Romsrw)
 
